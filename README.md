@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Dart,**
 
-- 💬 Ask me about **Hello My Name Is Ragil Bintang Taqya Can you call me Bintang 🇮🇩 : Indonesia People 🏫 : Junior High School 🏘️ : Bekasi 🎮 : Valorant | Minecraft | Roblox 🖥️ : Just Learning Darts |**
+- 💬 Ask me about **Hello My Name Is Ragil Bintang Taqya Can you call me Bintang 🇮🇩 : Indonesia People 🏫 : Junior High School 🏘️ : Bekasi 🎮 : Valorant | Minecraft | Roblox 🖥️ : Just Learning Darts | Im 15 year old**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
